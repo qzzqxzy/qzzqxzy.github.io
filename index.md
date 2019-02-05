@@ -6,3 +6,12 @@
 地址：福建省泉州市晋江市池店镇池店村凤南区506号  
 邮箱：zhiquan@qzzq.com.cn  
 网址：www.qzzq.com.cn  
+
+## Company Profile  
+Quanzhou Zhiquan Automation Equipment Co., Ltd. is a private enterprise specializing in R&D and manufacturing of blade intelligent cutting and punching machine. The products are mainly used in industries and fields such as shoes, garments, handbags, car interiors, carton packaging proofing, and flexible plastic materials cutting. Committed to providing high-quality, multi-functional intelligent equipment for domestic enterprises, and jointly realize the industrial transformation and upgrading from “Made in China” to “China Zhizhi”.
+## Contact information
+Contact: Mr. Xie  
+Tel: 0595-85988971 18065958510  
+Address: No. 506, Fengnan District, Chidian Village, Chidian Town, Jinjiang City, Quanzhou City, Fujian Province  
+E-mail: zhiquan@qzzq.com.cn  
+Website: www.qzzq.com.cn  
